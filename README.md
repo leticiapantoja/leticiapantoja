@@ -3,7 +3,7 @@
 - estou estudando no alura
 - me desenvolvendo no javascript
 -irei ultilizar esse espaço para melhorar meu desenpenho do javascript
-- fã de one piece
+- fã de one piece mk bayonetta e underverse
 - projeto de dubladora
 - 😄 Pronouns:she/her ela dela 
 
